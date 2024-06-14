@@ -10,7 +10,7 @@ Meu nome é Beatriz Freire
 
 00001121705935sp@al.educacao.sp.gov.br
 
-@BiaFreire06
+@BeatrizFreire
 
 ![](https://media1.tenor.com/m/MmN6Idw8V3EAAAAC/drake-kendrick-lamar.gif)
 
